@@ -1,2 +1,0 @@
-# dindanely
-UKK2022
